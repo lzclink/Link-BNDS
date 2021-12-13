@@ -19,18 +19,27 @@ Beijing National Day School, International Department, AP Program, class of 2023
 
 Beijing No.80 High School, middle school Wang Xuan Experimental Program, class of 2020;
 
+Fang Cao Di International School, Shi Ji Primary School, class of 2017
 
 
 ### My Hobbies
 
 Video games
+
 Anime
+
 History
+
 SpaceFlight
+
 Disvovery
+
 Travel
+
 Sojourn
+
 Basketball
+
 
 
 ### My Intended Major:
