@@ -9,6 +9,7 @@ My Personal Website: <https://lzclink.com>
 Want to work in Game Industry, especially in 3A game.
 
 Vice President & Tech Support @FANG YUAN economics club(Largest High School Economics Club in Beijing)
+
   Club's Website Developer & Maintainer: <https://bndsecon.com/>
 
 
