@@ -2,19 +2,14 @@ Hi, I'am Link from Beijing National Day school_International Department.
 
 ### Who am I?
 
-Zuchen Li 
-
-from Beijing National Day School, International Department, AP Program. 
-
-
-An ex-MOer (Primary School Math Olympiad, LOL)
-
-
-An ex-OIer 
+I am Zuchen Li from Beijing National Day School, International Department, AP Program. 
 
 My Personal Website: <https://lzclink.com>
 
-Our FANG YUAN economics club(Largest High School Economics Club in Beijing) website(by myself): <https://bndsecon.com/>
+Want to work in Game Industry, especially in 3A game.
+
+Vice President & Tech Support @FANG YUAN economics club(Largest High School Economics Club in Beijing)
+  Club's Website Developer & Maintainer: <https://bndsecon.com/>
 
 
 Beijing National Day School, International Department, AP Program, class of 2023;
