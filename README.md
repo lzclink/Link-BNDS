@@ -32,7 +32,7 @@ Aviation & Aerospace Enthusiasts
 
 Hiking (I prefer wild places)
 
-Travel (I love it. I have been to Japan, Egypt, USA, UK, Canada, Dubai, AbuBhabi, Singapore, Thailand, France, Germany, Spain, Russia, Luxembourg, HongKong, Macau. )
+Travel (I love it. I have been to Japan, Egypt, USA, UK, Canada, Dubai, AbuBhabi, Singapore, Thailand, France, Germany, Spain, Luxembourg, HongKong, Macau. )
 
 Basketball & Football 
 
