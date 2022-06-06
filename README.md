@@ -6,7 +6,11 @@ I am Zuchen Li from Beijing National Day School, International Department, AP Pr
 
 My Personal Website: <https://lzclink.com>
 
-Want to work in Game Industry, especially in 3A game.
+Want to work in Statistics-related industries, Game Industry or Computer Animation Industry. 
+
+Senior Member in BNDS Mathematical Modelling Lab, Seminar, and Club. Winner of Oustanding Award @ International Mathematical Modelling Contests (IMMC) (The 8th Annual)
+
+Found and Operate our Subtitle and Sinicization Club, work with ASPT and BNDS Aviation Enthusiasts Club. 
 
 Vice President & Tech Support @FANG YUAN economics club(Largest High School Economics Club in Beijing)
 
@@ -15,7 +19,6 @@ Vice President & Tech Support @FANG YUAN economics club(Largest High School Econ
 
 Beijing National Day School, International Department, AP Program, class of 2023;
 
-
 Beijing No.80 High School, middle school Wang Xuan Experimental Program, class of 2020;
 
 Fang Cao Di International School, Shi Ji Primary School, class of 2017
@@ -23,21 +26,15 @@ Fang Cao Di International School, Shi Ji Primary School, class of 2017
 
 ### My Hobbies
 
-Video games
+Video games & Anime & History
 
-Anime
+Aviation & Aerospace Enthusiasts
 
-History
+Hiking (I prefer wild places)
 
-SpaceFlight
+Travel (I love it. I have been to Japan, Egypt, USA, UK, Canada, Dubai, AbuBhabi, Singapore, Thailand, France, Germany, Spain, Russia, Luxembourg, HongKong, Macau. )
 
-Disvovery
-
-Travel
-
-Sojourn
-
-Basketball
+Basketball & Football 
 
 
 
@@ -45,17 +42,7 @@ Basketball
 
 ~~Theoretical Physics~~
 
-~~Finance~~
-
-~~Economics~~
-
-~~Financial Engineering~~
-
 ~~Applied Math&Data Science~~
 
-~~Math&CS~~
-
-~~Statistics&Data Science~~
-
-Statistics&Machine_Learning!
+Statistics!
 
