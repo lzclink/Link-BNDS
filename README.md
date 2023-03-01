@@ -8,7 +8,7 @@ My Personal Website: <https://lzclink.com>
 
 Want to work in Statistics-related industries, Game Industry or Computer Animation Industry. 
 
-Senior Member in BNDS Mathematical Modelling Lab, Seminar, and Club. Winner of Oustanding Award @ International Mathematical Modelling Contests (IMMC) (The 8th Annual)
+Member in BNDS Mathematical Modelling Lab, Seminar, and Club. Winner of Oustanding Paper Award @ International Mathematical Modelling Contests (IMMC) (The 8th Annual)
 
 Found and Operate our Subtitle and Sinicization Club, work with ASPT and BNDS Aviation Enthusiasts Club. 
 
